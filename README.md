@@ -1,1 +1,0 @@
-# -stasyon-Ezel-Tecno-Market-
